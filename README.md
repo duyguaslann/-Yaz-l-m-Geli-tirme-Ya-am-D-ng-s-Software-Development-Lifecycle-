@@ -1,0 +1,1 @@
+# -Yaz-l-m-Geli-tirme-Ya-am-D-ng-s-Software-Development-Lifecycle-
